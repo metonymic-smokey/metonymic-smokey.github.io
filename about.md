@@ -4,12 +4,10 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Hey! I'm Aditi, a computer science undergraduate, also a lover of all things literary! This blog will be witness to my sudden bursts of creativity, random flashes of inspiration, uncalled for rants and my innermost thoughts.   
+It's where I will - true to the description - muse and vent, enigmatic yet verbose.      
+Feel free to engage in a dialogue about the posts you see here. Nothing gladdens my soul more than meeting a kindred spirit!
 
-### More Information
+### Reach out
 
-A place to include any other types of information that you'd like to include about yourself.
-
-### Contact me
-
-[email@domain.com](mailto:email@domain.com)
+[Shoot an email](mailto:email@domain.com)
