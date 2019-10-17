@@ -51,4 +51,10 @@ I'm now 'done and dusted',
 Up goes the mosquito net,  
 The quilt's unfolded,  
 The alarm clock is bought nearer.  
-In the space of a minute,  
+In the space of a minute, 
+I am now cleansed,  
+Cathartically so.  
+
+Drowsy, I drift into sleep  
+Now unhearing of the clock ticking.  
+
