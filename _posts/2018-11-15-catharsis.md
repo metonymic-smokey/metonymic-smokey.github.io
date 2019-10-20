@@ -8,7 +8,7 @@ November 10th, 2018.
 
 I tossed and turned,     
 Feet entangled with the mosquito net, unused at the foot of the bed,    
-On that surprisingly hot that September night,    
+On that surprisingly hot November night,    
 Just two days shy of turning twenty.    
     
 A solitary mosquito buzzed in my ear   
