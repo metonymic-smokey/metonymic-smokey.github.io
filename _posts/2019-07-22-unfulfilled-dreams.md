@@ -38,7 +38,7 @@ A glimpse of normality over shared interests and memories,
 A clear patch of sun, in an otherwise overcast sky.    
 
 Amidst it all, betwixt these chasms  
-Resounds the voice in her head,	     	
+Resounds the voice in her head,            
 Searing a trail of cacophony and chaos,    
 Yet a fleeting calm amidst the storm.   
 
