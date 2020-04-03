@@ -7,7 +7,8 @@ November 10th, 2018.
 
 
 I tossed and turned,     
-Feet entangled with the mosquito net, unused at the foot of the bed,    
+Feet entangled with the mosquito net,  
+Unused at the foot of the bed,    
 On that surprisingly hot November night,    
 Just two days shy of turning twenty.    
     
@@ -40,7 +41,7 @@ I toss and turn, feet thoroughly entangled by now.
 A few minutes in,  
 The fog clears,  
 As do my eyes.  
-Ever fastidious, I stumble my way to the window 
+Ever fastidious, I stumble my way to the window  
 Peering at the dial of my wrist watch,  
 Glinting in the wee rays of moonlight.  
 
